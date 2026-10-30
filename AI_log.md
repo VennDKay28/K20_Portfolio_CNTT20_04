@@ -1,2 +1,2 @@
 không hiện ảnh
-không đúng đường dẫn 
+không đúng đường dẫn
